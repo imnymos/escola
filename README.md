@@ -1,2 +1,0 @@
-# escola
-para a aula
